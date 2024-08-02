@@ -1,4 +1,4 @@
-### 2024-08-03-English-Corner-Intro
+### 2024-08-03-English-Corner
 
 #### Topic: School
 #### Host: NJ
